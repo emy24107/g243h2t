@@ -1,4 +1,4 @@
-# segundo trimestre
-## site de apostas
-### Emily n8 e Livia n25
+# Segundo trimestre
+## Site de apostas
+### Emily n°:8 e Livia n°:25
 
